@@ -1,0 +1,1 @@
+Our website is a simple and convenient form for entering contact information. Here you can quickly and easily leave information about yourself, including your name, family and email address. We guarantee that all data will be used only to communicate with you and will be securely protected.
